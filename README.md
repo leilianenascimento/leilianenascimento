@@ -1,0 +1,5 @@
+-👋 Oi, eu sou @leilianenascimento
+- 👀 Tenho interesse em me especializar em Java
+- 🌱 Atualmente estou aprendendo, Java, Html e praticando exercicios da faculdade
+- 💞️ Estou procurando colaborar com meus aprendizados
+- 📫 Como chegar até mim, leilianesantos08@gmail.com.
